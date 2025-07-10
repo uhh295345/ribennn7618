@@ -14,4 +14,4 @@
 在安全保障方面，优质平台严控广告质量，防止恶意弹窗，保护用户隐私。用户在享受观看乐趣的同时，也能放心使用服务。  
 总之，精品中文欧美资源的不断丰富和平台的不断优化，推动了成人视频行业的健康发展，带给用户更丰富多样的选择。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/uhh295345/ribennn7618)</span>
